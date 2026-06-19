@@ -1,2 +1,2 @@
 # UNION-OF-CASSAVA-BLENDERS-
-Blenders association 
+Blenders association
